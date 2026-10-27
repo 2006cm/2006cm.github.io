@@ -1,2 +1,3 @@
 # 2006cm.github.io
-Portfolio website
+MC's Portfolio website
+ALL RIGHTS RESERVED 2026-ETC
